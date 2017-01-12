@@ -1,9 +1,9 @@
 # DGM1600
 
-11:09am
+11:13am
 33 degrees
 Snowing 
-pretty cold. Same ol' same ol'
+no change from inside the building... obviously.
 
 
-Still 33 degrees and snowing the high for today is 35
+Still 33 degrees and snowing. Did you know the first 'Americans' may actually be Europeans? Crazy stuff right? it's a new theory archeologists are checking out!
