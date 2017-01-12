@@ -1,9 +1,9 @@
 # DGM1600
 
-11:13am
+11:19am
 33 degrees
 Snowing 
-no change from inside the building... obviously.
+6 mph winds outside, gotta cover up.
 
 
-Still 33 degrees and snowing. Did you know the first 'Americans' may actually be Europeans? Crazy stuff right? it's a new theory archeologists are checking out!
+Still 33 degrees and snowing. Pretty chilly outside
