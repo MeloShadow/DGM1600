@@ -1,9 +1,9 @@
 # DGM1600
 
-11:08am
+11:09am
 33 degrees
 Snowing 
-pretty cold.
+pretty cold. Same ol' same ol'
 
 
-still 33 degrees and snowing, great time of the year.
+Still 33 degrees and snowing the high for today is 35
