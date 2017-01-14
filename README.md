@@ -1,9 +1,10 @@
 # DGM1600
 
-10:34pm
+10:35pm
 still 32 degrees in West Valley 
 
 Utah Jazz vs Detroit Pistions
 
-92-72 Jazz up
-7 3's for Rodney Hood
+94-72 Jazz up
+crazy lead right now
+22 points is a big lead
