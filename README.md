@@ -5,5 +5,5 @@ still 32 degrees in West Valley
 
 Utah Jazz vs Detroit Pistions
 
-58-51 Jazz up
-after a foul where drummond actually hit some free throws!
+64- 51 Jazz up
+11 3's hit by utah tonight crazy
