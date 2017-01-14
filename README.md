@@ -5,5 +5,5 @@ still 32 degrees in West Valley
 
 Utah Jazz vs Detroit Pistions
 
-103-72 Jazz up
-Timeout and most likely all the starters are done for the night
+103-74 Jazz up
+foul and the starters are all sitting now
