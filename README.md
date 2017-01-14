@@ -1,9 +1,8 @@
 # DGM1600
 
-10:19pm
+10:23pm
 still 32 degrees in West Valley 
 
 Utah Jazz vs Detroit Pistions
 
-69-57 Jazz up
-hayward with some good plays and detroit is struggling!
+75-62 Jazz updrummond at the line and end of 3rd
