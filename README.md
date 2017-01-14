@@ -1,9 +1,9 @@
 # DGM1600
 
-9:28pm
+9:38pm
 still 32 degrees in West Valley 
 
 Utah Jazz vs Detroit Pistions
 
-42-40
-all of the other commits were actually in the second quarter....
+45-43 Jazz up
+halftime
