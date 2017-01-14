@@ -5,5 +5,7 @@ still 32 degrees in West Valley
 
 Utah Jazz vs Detroit Pistions
 
-103-74 Jazz up
-foul and the starters are all sitting now
+110-77 Jazz up
+GAME OVER
+
+not too bad a game in my opinion
