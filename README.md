@@ -1,9 +1,9 @@
 # DGM1600
 
-10:40pm
+10:42pm
 still 32 degrees in West Valley 
 
 Utah Jazz vs Detroit Pistions
 
-96-72 Jazz up
-fouls piling up
+100-72 Jazz up
+4 minutes left in the game, basiclaly over
