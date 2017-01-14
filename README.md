@@ -1,9 +1,9 @@
 # DGM1600
 
-10:23pm
+10:34pm
 still 32 degrees in West Valley 
 
 Utah Jazz vs Detroit Pistions
 
-87-70 Jazz up
-foul.
+92-72 Jazz up
+7 3's for Rodney Hood
