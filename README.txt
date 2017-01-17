@@ -37,3 +37,9 @@ Denzel Valentine- Guard
 Dwyane Wade-	Guard
 Paul Zipser-	Forward
 
+Team Standings 
+Conference Standing: 8th in the Eastern Conference
+Win/Loss: 21W/21L
+Win%:	.500
+Streak:	2W
+
