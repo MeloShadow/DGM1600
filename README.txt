@@ -1,2 +1,7 @@
-NBA scores, Final Copy
+NBA scores
+Boston’s scores for the past week:
+Tues Jan 10 vs. Raptors: L106-114
+Wed Jan 11 vs. Wizards: W117-108
+Fri Jan 13 vs. Hawks: W103-101
+Mon Jan 16 vs. Hornets: W108-98
 
