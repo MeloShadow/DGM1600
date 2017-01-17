@@ -37,3 +37,9 @@ Trey Lyles-	Forward
 Shelvin Mack-	Guard
 Raul Neto-	Guard
 Jeff Withey-	Center
+
+Team Standings 
+Conference Standing: 5th in the Western Conference
+Win/Loss: 27W/16L
+Win%:	.628
+Streak:	4W
