@@ -19,3 +19,20 @@ Jimmy Butler- 1.8 spg
 
 Blocks:
 Robin Lopez- 1.7 bpg
+
+Roster (A-Z last name):
+Jimmy Butler- 	Forward
+Isaiah Canaan- 	Guard
+Michael Carter Williams- Guard
+Christian Felicio- Forward-Center
+Taj Gibson- 	Forward
+Jerian Grant-	Guard
+Robin Lopez- 	Center
+Doug Mcdermott-	Forward
+Nikola Mirotic-	Forward
+Bobby Portis-	Forward
+Rajon Rondo-	Guard
+Denzel Valentine- Guard
+Dwyane Wade-	Guard
+Paul Zipser-	Forward
+
