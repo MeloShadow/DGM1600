@@ -23,3 +23,4 @@ Anthony Davis
 
 Minnesota’s Best Player
 Karl Anthony Towns
+22 PPG
