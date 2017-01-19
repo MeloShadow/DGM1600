@@ -17,3 +17,5 @@ Gordon Hayward or Rudy Gobert
 
 New Orlean’s Best Player
 Anthony Davis
+28.8 PPG
+
