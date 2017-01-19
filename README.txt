@@ -5,3 +5,18 @@ Wed Jan 11 vs. Wizards: W117-108
 Fri Jan 13 vs. Hawks: W103-101
 Mon Jan 16 vs. Hornets: W108-98
 
+Season Stat leaders
+Points: 
+Isaiah Thomas- 28.7 ppg
+
+Rebounds: 
+Avery Bradley- 6.9 rpg
+
+Assists:
+Isaiah Thomas- 6 apg
+
+Steals:
+Marcus Smart- 1.4 spg
+
+Blocks:
+Al Horford- 1.8 bpg
