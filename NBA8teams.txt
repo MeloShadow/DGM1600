@@ -1,13 +1,16 @@
-Random NBA teams 
+Random NBA teams, best players in terms of PPG
 
 Boston’s best player
 Isaiah Thomas
+28.7 PPG
 
 Chicago’s best player
-Jimmy Butler or Dwyane Wade
+Jimmy Butler
+24.8 PPG
 
 Utah’s best player
-Gordon Hayward or Rudy Gobert
+Gordon Hayward
+22 PPG
 
 Portland’s Best player
 Damian Lillard 
