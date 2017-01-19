@@ -37,3 +37,9 @@ Marcus Smart-	Guard
 Isaiah Thomas- Guard
 James Young- Guard-Forward
 Tyler Zeller- 	Center
+
+Team Standings 
+Conference Standing: 3rd in the Eastern Conference
+Win/Loss: 26W/16L
+Win%: .619
+Streak: 3W
