@@ -14,4 +14,4 @@ Gordon Hayward or Rudy Gobert
 
 
 Oklahoma city’s Bet player
-Russell Westbrook
+Russell Westbrook 30.6 PPG
